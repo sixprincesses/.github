@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+![Uploading KakaoTalk_20240119_222421350.jpg…]()
+
 <!--
 
 **Here are some ideas to get you started:**
